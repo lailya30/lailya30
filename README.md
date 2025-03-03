@@ -2,7 +2,7 @@
 - 👀 I’m interested in Civil Engineering Management Project, Construction Project Estimation, and Project Administration
 - 🌱 I’m currently learning Engineering Project Management
 - 💞️ I’m looking to collaborate on Civil Engineering
-- 📫 How to reach me email:lailya.a@mail.ugm.ac.id
+- 📫 How to reach me email:lailya.kbc81@gmail.com
 
 <!---
 lailya30/lailya30 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
